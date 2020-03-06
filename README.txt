@@ -14,5 +14,3 @@
 #
 #
 #
-#
-#BRAO BE PETREE BRAO WE BRAAAAO
